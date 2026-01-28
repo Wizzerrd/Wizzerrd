@@ -9,7 +9,7 @@ AI Agents, Applications, & Integrations
 Game Development (for fun!)
 
 #### Who I am
-Interests: Economics, Politics, History, Emergent Technology
+Interests: Economics, Politics, History, Space & Physics, Emergent Technology
 
 Hobbies: Skiing, Fishing
 
